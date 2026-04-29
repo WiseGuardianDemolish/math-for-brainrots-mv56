@@ -1,4 +1,4 @@
-
+automatic Script for math for brainrots is the best math for brainrots Script, featuring custom skins and anti-ban. Safe and powerful for all your
 
 
 
